@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning html, css and java-script
 - 💞️ I’m looking to collaborate on any website project
 - 📫 How to reach me : everywhere you see someone called Ilmule
-- ⚡ Fun fact:I only learn by myself
+- ⚡ Fun fact:I only learn by myself, I'm only 16 years old and I'm french
